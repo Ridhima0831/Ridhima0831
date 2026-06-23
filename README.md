@@ -23,5 +23,5 @@
 - Project Expo Participant
 
 📫 Connect With Me
-- LinkedIn: www.linkedin.com/in/ridhima-bhardwaj-311533333
+- LinkedIn: www.linkedin.com/in/ridhima-bhardwaj-aiml
 - Email: ridhimabhardwaj2031@gmail.com
